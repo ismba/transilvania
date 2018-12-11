@@ -13,7 +13,7 @@ Si votre document a été numérisé en mode image, indiquez comment vous avez p
 4. Paul Féval. Les frères ténèbre. Portal Cécile
 5. Elisée Reclus. Nouvelle géographie universelle.
 6. Jules Verne. Le tour du monde en 80 jours. Antoine David.
-7. Jules Verne. Le secret de Wilhem Storitz
+7. Jules Verne. Le secret de Wilhem Storitz .Ismael Barry.
 8. JUles Verne. Robur le conquérant
 9. Vingt mille lieues sous les mers.  Jeanne Rolland
 10. Georges Sand. Laura- Voyage dans le cristal. Jean David
